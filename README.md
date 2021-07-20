@@ -1,6 +1,6 @@
 ➳Techie 👨‍💻
 
-➳Blogger 💻✒
+➳Blogger 💻✒ ☛ www.manojed.com
 
 ➳Loves fitness 🏋️‍♂️🏃‍♂️🚴‍♂️
 
