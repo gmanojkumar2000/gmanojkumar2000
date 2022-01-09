@@ -1,5 +1,7 @@
 ➳Techie 👨‍💻
 
+➳Architect 👨‍💻
+
 ➳Blogger 💻✒ ☛ www.manojed.com
 
 ➳Loves fitness 🏋️‍♂️🏃‍♂️🚴‍♂️
