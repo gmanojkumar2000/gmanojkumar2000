@@ -2,7 +2,7 @@
 
 ➳Architect 👨‍💻
 
-➳Blogger 💻✒ ☛ www.manojed.com
+➳Blogger 💻✒ ☛
 
 ➳Loves fitness 🏋️‍♂️🏃‍♂️🚴‍♂️
 
