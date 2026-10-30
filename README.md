@@ -1,12 +1,13 @@
-➳Techie 👨‍💻
+# Hi, I’m Manoj 👋
 
-➳Architect 👨‍💻
+Cloud and full-stack engineer focused on AWS automation, self-hosted applications, and offline-first software.
 
-➳Blogger 💻✒ ☛
+I build practical systems with Python, FastAPI, React, TypeScript, Kotlin, Docker, GitHub Actions, and AWS.
 
-➳Loves fitness 🏋️‍♂️🏃‍♂️🚴‍♂️
+## Current focus
 
-➳Loves music 👨‍🎤🎧🎼🎵🎶
+AI projects · AWS architecture · platform automation · reliable full-stack products
 
-➳Loves to play & watch sports ⚽️🏏🤼‍♂️⛹️‍♂️
+## Want to connect with me?
 
+https://www.linkedin.com/in/gmanojkumar2000/
